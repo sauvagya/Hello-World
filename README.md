@@ -13,3 +13,4 @@ Matthew The
 First task: 02/20/2015
 
 Presenting a rough and brief overview (2-3 slides) of the entire project for our own understandings and for the peers as well.
+/home/ultimatum/Documents/ProjectBB2490/Venn Diagram Pictures/high in total V2.jpg
